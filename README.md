@@ -74,7 +74,7 @@ I’m now looking to take my first step into the tech world, pursuing a **career
 
 I would love to join a company that **shares my values** of continuous learning and development, where I can continue to grow and contribute meaningfully. 💡
 
-**Looking for a role in tech where I can thrive, learn, and make an impact!** 🚀
+**I'm looking for a role in tech where I can thrive, learn, and make an impact!** 🚀
 
 📩 **_Happy to connect and collaborate on projects! [Reach me on LinkedIn:](https://www.linkedin.com/in/beth-sharp-93b758105)_** [<img height=35 src="https://cdn-icons-png.flaticon.com/512/174/174857.png" />](https://www.linkedin.com/in/beth-sharp-93b758105)
 
